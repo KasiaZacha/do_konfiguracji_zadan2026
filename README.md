@@ -1,0 +1,1 @@
+# do_konfiguracji_zadan2026
